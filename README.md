@@ -1,4 +1,4 @@
-### Dae, galerinha!! Eu sou o Márcio John.✈️🪂
+### Olá, pessoal!! Eu sou o Márcio John.✈️🪂
 
 
 - 🧑🏻‍💼 Sou Analista de Sistemas Quality Assurance nas Farmácias Nissei.
